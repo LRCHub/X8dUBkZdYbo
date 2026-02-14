@@ -1,0 +1,57 @@
+# ONE OK ROCK – Your Tears are Mine
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:08.34] It's been a ride
+[00:10.39] Fighting through life
+[00:12.73] Hard to come by some kindness
+[00:16.88] Trying to hide all that's inside
+[00:21.11] Making walls of your silence
+[00:25.16] And I know there's something going on
+[00:29.75] Though you don't ever let me in
+[00:34.97] I'd give you all my soul
+[00:39.02] Just for you to know
+[00:49.02] 
+[00:42.35] Your tears are mine
+[00:49.73] And it's a new world tonight
+[00:56.92] Say my name and I will fly
+[01:00.44] Over to you
+[01:02.40] Gunning for time
+[01:04.60] I promise you that it will be all right
+[01:10.81] Just please hold on
+[01:20.31] 
+[01:24.72] I'd like to love you true
+[01:28.73] With all of your scars
+[01:33.29] Wish I could care for a little
+[01:37.48] Piece of your heart
+[01:41.07] If you'd like to tell me
+[01:45.85] How your story began
+[01:49.00] I'm sitting right here waiting
+[01:54.03] And no you're not alone anymore
+[02:09.53] 
+[01:58.54] Your tears are mine
+[02:05.76] And it's a new world tonight
+[02:13.20] Say my name and I will fly
+[02:16.88] Over to you
+[02:18.60] Gunning for time
+[02:20.89] I promise you that it will be all right
+[02:27.16] Just please hold on
+[02:36.66] 
+[02:33.54] I'll be right here and there's nothing to hide
+[02:37.89] Everyone needs understanding sometimes
+[02:42.09] You're beautiful even when you feel broken
+[02:49.43] I'm right by you
+[02:53.70] We'll make it through
+[02:57.96] I'll stay with you till the dark fades
+[03:16.96] 
+[03:09.79] Your tears are mine
+[03:18.37] It's a new world tonight
+[03:25.99] Say my name and I will fly
+[03:29.64] Over to you
+[03:31.70] Gunning for time
+[03:33.91] I promise you that I'll be by your side
+[03:41.39] Through the fight
+[03:45.51] Everything's gonna be fine
+[03:48.62] Just please hold on tight
+```
